@@ -1,1 +1,1 @@
-[Newbie Impact] (https://discord.gg/KssXX9WYJK)
+[Newbie Impact](https://discord.gg/KssXX9WYJK)
